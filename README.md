@@ -1,2 +1,1 @@
-# sam
-Por Sam
+ é um estudante do 1º ano do Ensino Médio no Colégio Rebuá. Além de ser dedicado aos estudos, é um artista talentoso, expressando sua criatividade através de [especificar a forma de arte, como desenho, pintura, música, etc.]. Apesar de ser introvertido, encontra na arte uma forma poderosa de se comunicar e expressar suas emoções. Para contato, ligue para [número de contato].
